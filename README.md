@@ -1,4 +1,4 @@
-# projPolarized 🧭
+# projPolarize 🧭
 I'll be holding onto ✝️
 
 🔶 [GhostwhiteAshamedInformationtechnology](https://replit.com/@eigenscribe/GhostwhiteAshamedInformationtechnology)
